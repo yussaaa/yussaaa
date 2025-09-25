@@ -2,7 +2,7 @@ Hi 👋 My name is Yusa Li
 ========================
 
 * 🌍  I'm based in Toronto
-* ✉️  You can contact me at [yusa.li@mail.utoronto.ca](mailto:yusa.li@mail.utoronto.ca)
+* ✉️  You can contact me at [yusa.li@mail.utoronto.ca](mailto:yusa.li@hotmail.com)
 
 ### Skills
 
